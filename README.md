@@ -1,2 +1,2 @@
 # Trape
-Ajje moeite è me jen mol te pakn.
+Ajje moeite et me je mol te pakn.
